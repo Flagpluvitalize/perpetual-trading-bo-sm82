@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with new Trading Bot for perpetual trading bot | auto-leverage & multi-exchange-support, the #1 perpetual trading bot. Includes auto-leverage and
 
 
 
